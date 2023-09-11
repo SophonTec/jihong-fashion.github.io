@@ -1,1 +1,1 @@
-# jihong-fashion.github.io
+# Jihong Fashion Co., Ltd. Homepage
